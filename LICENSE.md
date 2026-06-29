@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with advanced Scripts for break a brainrot egg, the #1 Script. Includes auto-sell and custom skins
 
 
 
